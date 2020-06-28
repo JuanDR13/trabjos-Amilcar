@@ -1,2 +1,0 @@
-# trabjos-Amilcar
-PRIMER TAREA
